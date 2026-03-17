@@ -3,8 +3,8 @@
 
 ## Ingredients
 
-- **some** potatoes, pealed, cleaned and diced
-- **1 or 2** leak(s), diced
+- **4-5** potatoes, pealed, cleaned and diced
+- **1** leak, diced
 - (optional) **1 tablespoon** olive oil or salted/unsalted butter
 - (optional) **2** garlic cloves, minced
 - **Salt and black pepper** to taste
